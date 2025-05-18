@@ -1,3 +1,4 @@
-- I’m @giakiet
+- I’m Trương Quang Thắng
+- NickName Hoang Gia Kiet
 - Age : 18 (08 05 2007)
 - Try to improve everyday!!!!
