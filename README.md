@@ -1,1 +1,3 @@
-# info-profile
+- I’m @giakiet
+- Age : 18 (08 05 2007)
+- Try to improve everyday!!!!
